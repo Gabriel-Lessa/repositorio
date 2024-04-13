@@ -1,1 +1,1 @@
-Hoje a noite ta linda
+"Amanha vai dar praia"
